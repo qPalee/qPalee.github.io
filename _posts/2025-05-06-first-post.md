@@ -25,11 +25,34 @@ I have been playig darts for about a year-ish so far and honestly lost track of 
 
 I play in 2 leagues, the [Clacton Men's Dart League](https://cmdl180.co.uk/), where I play for Buddies in Division 2, in which we are currently 5th (I think), and the [Clacton Thursday Night Friendly Darts League](https://ctnfd.leaguerepublic.com/index.html) where last season we came second to last and I am the Vice Captain.
 
+## Sport
+
+Although I don't play any sports, I enjoy watching it a lot, *and yes Darts is not a sport*.
+
+### Football
+
+Ever since I was a little kid, I have been a West Ham fan and have been to many games, although I would like to go to more but I have neither the time nor money in order to do so. Luckily I was able to go to Upton Park before it was destroyed, when West Ham played Manchester United in the FA Cup, and annoyingly we left early to beat the traffic in London and missed their equalizer scored by Robin van Persie, which led to an away leg that we lost. Also I can't talk about West Ham without mentioning winning the Conference League, our first trophy in 40 years, which was amazing and a night where I had way too many beers.
+
+#### London Stadium
+
+I have been to the London Stadium quite a few times, and while the view isn't amazing, it isn't as bad as most people make it out to be. You can see the pitch fine unless if you're right back in row Z, which I have never had to. The games I remember most are losing 5-1 to Manchester City, drawing 3-3 to Brighton and watching West Ham play European football, which was a wonderful feeling considering how bad we have been most of my life.
+
+#### Away Games
+
+I haven't been to many away games but I have done a couple. I have been to friendly games away at Wycombe Wanders, in which I got Sam Allerdyces signature when he was our manager, Fulham Away After the 2022 World Cup and Stevenage. I also went to Derby Away in the FA Cup last season when we won 2-0, which was probably one of the best games I have personally been to.
+
+### Formula 1
+
+I was never into Formula 1 as a kid, but that changed when Covid happened and me and my friends started playing the F1 game on the PS4, which was great fun and lead to me starting to watch the races and get interested in the sport, with the 2021 championship being so good being a good push towards me watching it more. 
+
+Luckily last year I was able to go to Barcelona and watch the F1 in person, which was absolutely amazing with the speed that those cars move at and how loud theu are. I would highly recommend it to anyone who hasn't been to it, although it is much better if you can find a space with a screen near you so you can see what is going on in the rest of the track. The best part of the whole weekend was being able to go onto the track after the race ended, which gives you a real perspective of how massive the track is and just how quickly the cars zoom through it. You also get to see the podium and all the cars really close up, as well as some of the team principles talking to the media. 
+
 ## Destiny 2
 
 I feel I need to add a section for this, since it could be a whole post on its own. I started playing Destiny the year it came out when I got it for Christmas in 2014, and then played on and off until around May 2021, when I started playing it a lot more. 
 
 In that time I have put countless hours into the game, met many friends and learnt a hell of a lot about the inner workings of the game. To keep it short, I am currently Top 300 for both [raids](https://raid.report/ps/4611686018509255992) and [dungeons](https://dungeon.report/ps/4611686018509255992), although I was higher before a lot of cheaters started getting better times, and have done quite a few 'challenges', some of which are on my [YouTube channel](https://www.youtube.com/@qPalee).
+
 
 ## Future Plans
 
