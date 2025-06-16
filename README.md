@@ -1,4 +1,4 @@
-# qPalee.hithub.io
+# qPalee.github.io
 
 ## Build Instructions 
 ```
